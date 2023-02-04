@@ -1,2 +1,0 @@
-# vadnasaj.github.io
-jay
